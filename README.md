@@ -1,2 +1,0 @@
-# System
-RED ARMY UP By:TIGER
